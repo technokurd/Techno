@@ -1,1 +1,5 @@
-# Techno
+YADAGYAN
+
+
+# TELEGRAM/F
+#Yadagyan
